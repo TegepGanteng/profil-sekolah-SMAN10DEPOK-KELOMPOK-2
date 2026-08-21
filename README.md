@@ -1,1 +1,0 @@
-# profil-sekolah-SMAN10DEPOK-KELOMPOK-2
